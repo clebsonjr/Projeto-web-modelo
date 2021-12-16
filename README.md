@@ -6,3 +6,4 @@ Acabei de ajustar a imagem da página
 Página atualizada
 
 Clebson ajuste as informações do site
+E mais as imagens,obrigado!
